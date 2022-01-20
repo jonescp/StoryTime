@@ -8,7 +8,8 @@ Alexander
 Abby
 Lizbeth
 Payton
-Cody
+I found 30 pieces of hersheys chocolate  
+
 Alan
 VAnce
 Kathy
